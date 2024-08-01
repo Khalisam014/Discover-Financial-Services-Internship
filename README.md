@@ -1,1 +1,1 @@
-# Discover-Financial-Services-Internship
+# Discover-Financial-Services-Internships
